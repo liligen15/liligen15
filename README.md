@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @liligen15
 - 👀 I’m interested in cats, dogs, books, running and cooking
-- 🌱 I’m currently learning information sciences
-- 💞️ I’m looking to collaborate on lots of different projects 
-- 📫 How to reach me ... don't
+- 🌱 I’m currently studying information sciences and working in digital preservation
+- 💞️ I’m looking to collaborate on lots of different (easy) projects 
+- 📫 How to reach me ... here
 - 😄 Pronouns: she/her
